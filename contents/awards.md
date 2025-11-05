@@ -1,3 +1,3 @@
-- 校级一等奖学金, 2022.  
+- Top 10 Outstanding Students of Wuhan University（十大珞珈风云学子）, 2024
 
-- Outstanding Graduation Thesis, XXX University, 2023. 
+- 甲等奖学金, 2023-2024.  
