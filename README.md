@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me? email: dingyc2004@gmail.com / dingyichen@whu.edu.cn 
-- 😄 My personal website: dingyc2004.github.io
+- 😄 My personal website: https://dingyc2004.github.io
 - ⚡ Fun fact: to be expected
